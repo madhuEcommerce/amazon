@@ -1,5 +1,5 @@
 hi friends
-good morninig
+good morning
 
 
 how are u all?
